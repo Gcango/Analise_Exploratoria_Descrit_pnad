@@ -1,0 +1,1 @@
+A recolha dos addos que compoem o PNAD, Visa acompanhar as flutuações trimestrais e a evolução, no curto, médio e longo prazos, da força de trabalho, e outras informações necessárias para o estudo do desenvolvimento socioeconômico do País.
